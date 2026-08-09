@@ -6,4 +6,4 @@ In this newsletter, you will discover a collection of musings that delve into pe
 
 I invite you to explore, reflect, and engage with the content. Feel free to reach out with your thoughts and insights - let’s journey through this reflective process together.
 
-- Qing Jiu
+— Qing Jiu
