@@ -24,3 +24,6 @@ that’s enough.
 那就够了。
 
 [<img src="https://media.craiyon.com/2025-08-05/_lB-aGPkT3uZNBHzy0Pw9g.webp" width="30%" style="margin: auto"/>](https://media.craiyon.com/2025-08-05/_lB-aGPkT3uZNBHzy0Pw9g.webp)
+
+### [Contact me | 联系我](https://qingjiublog.wordpress.com/contact/) 
+### [Subscribe | 订阅](https://qingjiublog.wordpress.com/)
